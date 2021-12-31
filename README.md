@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @G66sei
+- 👀 I’m interested in music, art, and entertainment
+- 🌱 I’m currently learning as much as popsicle
+- 💞️ I’m looking to collaborate on art projects
+- 📫 How to reach me g66sei@gmail.com
